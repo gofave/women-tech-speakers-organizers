@@ -1337,6 +1337,15 @@ If anyone is reported as malicious or making others feel uncomfortable, they may
 
 ### Europe
 
+#### Eva Fog
+
+- Facebook www.facebook.com/digipippi / www.facebook.com/paedagonok
+- Twitter [@digipippi] www.twitter.com/digipippi / [@paedagonok] www.twitter.com/paedagonok
+- Web [DigiPippi] https://digipippi.dk / [Personal] http://evafog.dk
+- LinkedIn https://www.linkedin.com/in/evafog/
+- Group Focus - Bridging the gender gap, creating tech interest for girls under 13 years old, tech education, role models, digital parenting, social entrepreneurship, public speaking, founder of DigiPippi - a tech organization for girls only.
+- Location - Denmark
+
 #### Britt Barak
 
 - Facebook - www.facebook.com/britt.barak
